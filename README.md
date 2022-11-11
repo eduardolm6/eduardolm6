@@ -2,7 +2,7 @@
 
 
 - 📚 Aluno da Anhembi Morumbi 
-- 🚀 Aluno da Rocketseat
+- 🚀 Aluno da Trybe
 - 🤔 Estou em busca de conhecimento
 - 😄 Pronouns: Ele/Dele
 - ⚡ Curiosidade: Faço parte de 2% da população ruiva do mundo 👨‍🦰
